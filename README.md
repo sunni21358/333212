@@ -45,4 +45,4 @@
 优质资源站往往每日更新几十部新作，并附带演员信息、影片编号、标签筛选等功能，极大提升查找效率。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sunni21358/333212 ）</span>
